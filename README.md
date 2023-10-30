@@ -1,5 +1,5 @@
 # Das-and-co
-Harish - Team leader 
+Team leader - Harish 
 
 Members - Antony, sangeeth, venkatesh 
 
