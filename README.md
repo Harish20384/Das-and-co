@@ -1,7 +1,7 @@
 # Das-and-co
-Team leader - Harish 
+Team leader - Harish S
 
-Members - Antony, sangeeth, venkatesh 
+Members - Antony Stanley, sangeerth Krishna, venkatesh M
 
 Brand promo video - https://drive.google.com/file/d/1nArn9ek0YX-jIjlVYe0sC1Zruy87DZu5/view?usp=drivesdk
 
